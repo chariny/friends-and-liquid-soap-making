@@ -1,1 +1,1 @@
-# friends-and-liquid-soap-making
+# liquid-soap-making
